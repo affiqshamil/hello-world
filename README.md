@@ -1,3 +1,2 @@
 # hello-world
-Just another repository
-basketballer
+HELLO IM AFFFIQ IM A GOOD GUY
